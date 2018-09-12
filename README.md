@@ -1,1 +1,4 @@
-# jamese98.github.io
+# James Ekstract
+
+### WIP
+
